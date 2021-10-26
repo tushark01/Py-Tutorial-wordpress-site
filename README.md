@@ -14,3 +14,11 @@ Have a look ::
 ![Screenshot 2021-10-24 003952](https://user-images.githubusercontent.com/70583158/138568661-26a8540f-688f-4eec-bf32-6c937dc0ff04.png)
 ![Screenshot 2021-10-24 004020](https://user-images.githubusercontent.com/70583158/138568664-c0fe72b0-305f-4e9e-affd-a5162c0558af.png)
 ![Screenshot 2021-10-24 004047](https://user-images.githubusercontent.com/70583158/138568666-7215ea23-3c30-4ac7-9d2d-8425048b847b.png)
+
+
+Blog 2 on how to Improve Your Mobile Photography:
+
+![Screenshot 2021-10-26 110554](https://user-images.githubusercontent.com/70583158/138815334-faad6e8d-6a9d-4d3d-a922-c05a6e5af916.png)
+![Screenshot 2021-10-26 110619](https://user-images.githubusercontent.com/70583158/138815354-65f9baca-6519-458a-9d0b-9bcedab7a8e7.png)
+![Screenshot 2021-10-26 110636](https://user-images.githubusercontent.com/70583158/138815364-fb594b47-16fc-4f33-9914-87f5e37a66ba.png)
+![Screenshot 2021-10-26 110706](https://user-images.githubusercontent.com/70583158/138815471-18a1f598-c346-48d9-a184-002813ff7648.png)
